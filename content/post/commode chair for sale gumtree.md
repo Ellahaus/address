@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Commode Chair For Sale Gumtree"
+        
+date = 2020-11-09T14:46:05.591122
+        
++++
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iy8AAOSwqK9e484R/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/iy8AAOSwqK9e484R/$_86.JPG) Sturdy Commode Chair Portable Toilet | in Burnham, Berkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/x7gAAOSwGUNfYQsl/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/x7gAAOSwGUNfYQsl/$_86.PNG) Commode Chair (Etac Swift) | in Beccles, Suffolk | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/Pk0AAOSw8PRdTEGC/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/Pk0AAOSw8PRdTEGC/$_86.JPG) Commode chair | in Plymouth, Devon | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ZUAAAOSwl3xflqvR/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ZUAAAOSwl3xflqvR/$_86.JPG) Commode Chair | in Godalming, Surrey | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg4OTM=/z/mnMAAOSwsrBe8M~u/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg4OTM=/z/mnMAAOSwsrBe8M~u/$_86.JPG) Commode Chair | in North Berwick, East Lothian | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/S20AAOSwTzlfde9d/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/S20AAOSwTzlfde9d/$_86.JPG) Royale Commode Chair | in Filey, North Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/M6cAAOSwn~BeLgM4/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/M6cAAOSwn~BeLgM4/$_86.JPG) Disability shower chair with commode | in Rogerstone, Newport | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/GqgAAOSweopdKxvZ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/GqgAAOSweopdKxvZ/$_86.JPG) Commode seat for sale. | in Aberdeen | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAxN1g3NTA=/z/RJ8AAOSwKyxfV5wx/$_86.JPG)](https://i.ebayimg.com/00/s/MTAxN1g3NTA=/z/RJ8AAOSwKyxfV5wx/$_86.JPG) Commode Chair | in Southampton, Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/mUYAAOSwne1fppRo/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/mUYAAOSwne1fppRo/$_86.JPG) Commode Chair | in Comber, County Down | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/TGQAAOSwlJhfXc73/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/TGQAAOSwlJhfXc73/$_86.JPG) ETAC shower commode chair | in Street, Somerset | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDUzNw==/z/RoIAAOSw~15eZnFX/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDUzNw==/z/RoIAAOSw~15eZnFX/$_86.PNG) Mobile commode chair | in Denham, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/h9oAAOSwtM5fBER2/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/h9oAAOSwtM5fBER2/$_86.JPG) Commode chair | in Dowanhill, Glasgow | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/9IIAAOSwR7ldILLQ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/9IIAAOSwR7ldILLQ/$_86.JPG) ADJUSTABLE COMMODE CHAIR | in Ross-on-Wye, Herefordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Zj8AAOSwmFde9khT/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Zj8AAOSwmFde9khT/$_86.JPG) New commode chair & additional aid | in Rumney, Cardiff | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/yaUAAOSw7b9e8T-m/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/yaUAAOSw7b9e8T-m/$_86.JPG) Commode Chair XL LARGE with Footplates and Castor Wheels Over Toilet  BARIATRIC | in Portadown, County Armagh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/IG4AAOSwhjNe8flQ/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/IG4AAOSwhjNe8flQ/$_86.JPG) Luxury commode chair | in Newport Pagnell, Buckinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg4NDI=/z/VicAAOSw4tte8TGf/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg4NDI=/z/VicAAOSw4tte8TGf/$_86.JPG) AIDAPT Essex Commode Chair Height Adjustable * Delivery Available | in  Portadown, County Armagh | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/kQsAAOSwisRfnXyO/$_99.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/kQsAAOSwisRfnXyO/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDY3MA==/z/8moAAOSwa4xe619W/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDY3MA==/z/8moAAOSwa4xe619W/$_118.PNG) Commodes for Sale | Healthy & Beauty Products | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/vhUAAOSw5Mle4gNL/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/vhUAAOSw5Mle4gNL/$_86.JPG) Wicker commode - Bedroom Wicker Commode Chair | in Atherstone, Warwickshire  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/bdEAAOSwAWlacZBa/$_86.JPG)](https://i.ebayimg.com/00/s/NzY1WDEwMjQ=/z/bdEAAOSwAWlacZBa/$_86.JPG) Freeway Commode chair Brand new Disability Wheels | in Tredegar, Blaenau  Gwent | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NjQwWDQ4MA==/z/hcUAAOSwgtBfmX99/$_99.JPG)](https://i.ebayimg.com/00/s/NjQwWDQ4MA==/z/hcUAAOSwgtBfmX99/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/BPkAAOSw64Zd0C1l/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/BPkAAOSw64Zd0C1l/$_86.JPG) Commode chair | in Liverpool, Merseyside | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SxgAAOSwKrte-Lif/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/SxgAAOSwKrte-Lif/$_86.JPG) Basketweave Commode Chair | in Claygate, Surrey | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/sygAAOSwLNteW855/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/sygAAOSwLNteW855/$_86.JPG) ETAC Clean Shower Commode Chair | in Downend, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/yNUAAOSw0SJfNWWL/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/yNUAAOSw0SJfNWWL/$_86.JPG) Commode chair | in Chichester, West Sussex | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/uV4AAOSwnDZfJZLf/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/uV4AAOSwnDZfJZLf/$_86.JPG) Commode chair | in Birstall, Leicestershire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/iZwAAOSw5VVe5mIC/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/iZwAAOSw5VVe5mIC/$_86.JPG) NEW GLIDEABOUT COMMODE CHAIR WITH PADDED SEAT, BRAKES AND FOOTPLATES | in  Great Barr, West Midlands | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/K8sAAOSw9Idexov3/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/K8sAAOSw9Idexov3/$_86.JPG) Brand new Sidhill Commode Chair Toilet | in Middlesbrough, North Yorkshire  | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQwMA==/z/A3AAAOSwdTRe~GPX/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDQwMA==/z/A3AAAOSwdTRe~GPX/$_118.PNG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1Nzc=/z/Q9wAAOSwTVtfYzi~/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1Nzc=/z/Q9wAAOSwTVtfYzi~/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~cIAAOSwTNFfhbdv/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/~cIAAOSwTNFfhbdv/$_86.JPG) Toilet commode chair like new | in Burnley, Lancashire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3ODM=/z/MpgAAOSwBfhe935c/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3ODM=/z/MpgAAOSwBfhe935c/$_86.JPG) Deluxe Royale Commode Chair | in Liverpool, Merseyside | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fSQAAOSwNphb6KRS/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fSQAAOSwNphb6KRS/$_86.JPG) Luxury commode chair | in Fleet, Hampshire | Gumtree
+[ ![](https://i.ebayimg.com/images/g/tW0AAOSw06hc5UCi/s-l800.jpg)](https://i.ebayimg.com/images/g/tW0AAOSw06hc5UCi/s-l800.jpg) Standard Folding Commode - ON SALE - Now Only R999. While Stocks Last |  Century City | Gumtree Classifieds South Africa | 504296548
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/KLYAAOSwS1pfmxOu/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/KLYAAOSwS1pfmxOu/$_99.JPG) Commode chair | Stuff for Sale - Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAwMFgxMDAw/z/mNYAAOSwzVtfo3Fq/$_35.jpg)](https://i.ebayimg.com/00/s/MTAwMFgxMDAw/z/mNYAAOSwzVtfo3Fq/$_35.jpg) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/ifMAAOSw5uNfn8r-/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/ifMAAOSw5uNfn8r-/$_118.PNG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/f~kAAOSwG5xfksIH/$_99.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/f~kAAOSwG5xfksIH/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/cpEAAOSweXhfp9Qy/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NzY=/z/cpEAAOSweXhfp9Qy/$_99.JPG) Commode chair | Stuff for Sale - Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/EDUAAOSwCi5e5fe8/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/EDUAAOSwCi5e5fe8/$_86.PNG) Don't have a pot to piss in?. Commode | in Dunfermline, Fife | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fiIAAOSwa6JflxYp/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fiIAAOSwa6JflxYp/$_99.JPG) Commode chair | Stuff for Sale - Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/UcQAAOSwrqNfp-6F/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/UcQAAOSwrqNfp-6F/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/NDAAAOSwWNBfXRia/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/NDAAAOSwWNBfXRia/$_86.PNG) Commode | in Hull, East Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/BroAAOSwJZVe6Kmj/$_86.JPG)](https://i.ebayimg.com/00/s/NzY4WDEwMjQ=/z/BroAAOSwJZVe6Kmj/$_86.JPG) Bariatric Shower Commode Chair | in Irvine, North Ayrshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/cCUAAOSweuBc0VxB/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/cCUAAOSweuBc0VxB/$_86.PNG) Vintage wooden commode chair | in Wortley, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/images/g/bEgAAOSwcuVfp0hh/s-l400.webp)](https://i.ebayimg.com/images/g/bEgAAOSwcuVfp0hh/s-l400.webp) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/images/g/InMAAOSw6DFfpml5/s-l400.webp)](https://i.ebayimg.com/images/g/InMAAOSw6DFfpml5/s-l400.webp) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/tsUAAOSwr0NfSk6H/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/tsUAAOSwr0NfSk6H/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/images/g/~BgAAOSwcU5fp5ZI/s-l400.webp)](https://i.ebayimg.com/images/g/~BgAAOSwcU5fp5ZI/s-l400.webp) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/aRkAAOSwzI5fmdRu/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/aRkAAOSwzI5fmdRu/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MzIwWDI0MA==/z/ouUAAOSwuxJflBWk/$_99.JPG)](https://i.ebayimg.com/00/s/MzIwWDI0MA==/z/ouUAAOSwuxJflBWk/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/aa4AAOSwm0lfiywl/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/aa4AAOSwm0lfiywl/$_99.JPG) Commode - Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/T98AAOSwy8VfpGlm/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/T98AAOSwy8VfpGlm/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/images/g/DnkAAOSwrYBfpl3b/s-l400.webp)](https://i.ebayimg.com/images/g/DnkAAOSwrYBfpl3b/s-l400.webp) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MU0AAOSwmNFfRLsI/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MU0AAOSwmNFfRLsI/$_86.JPG) Shower disability / mobility aid chair plus commode in excellent condition-  Irby, Wirral, CH61 | in Wirral, Merseyside | Gumtree
+[ ![](https://i.ebayimg.com/images/g/I3MAAOSwBMhfhlDZ/s-l400.webp)](https://i.ebayimg.com/images/g/I3MAAOSwBMhfhlDZ/s-l400.webp) Disability Aid Commode Chair A plus condition. German manufacture |  Miscellaneous Goods | Gumtree Australia Maitland Area - Morpeth | 1259041171
+[ ![](https://i.ebayimg.com/00/s/MjU4WDI1Mw==/z/XFgAAOSwYkxfhIW1/$_99.JPG)](https://i.ebayimg.com/00/s/MjU4WDI1Mw==/z/XFgAAOSwYkxfhIW1/$_99.JPG) Commode for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQyMA==/z/E0MAAOSwUIte5zT6/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDQyMA==/z/E0MAAOSwUIte5zT6/$_118.PNG) Commodes for Sale | Healthy & Beauty Products | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bcwAAOSwRRpfnW6u/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/bcwAAOSwRRpfnW6u/$_99.JPG) Commode chair sale - Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Cu0AAOSwsnpe6KIT/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/Cu0AAOSwsnpe6KIT/$_99.JPG) Commodes for Sale | Healthy & Beauty Products | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/jkYAAOSwoS9fqAML/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/jkYAAOSwoS9fqAML/$_118.PNG) Commode for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njc=/z/8nsAAOSwaOtfluJF/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njc=/z/8nsAAOSwaOtfluJF/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/VQQAAOSwQPtfpjBV/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/VQQAAOSwQPtfpjBV/$_118.PNG) Commode for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg1NDU=/z/UPEAAOSwk-pfqAev/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg1NDU=/z/UPEAAOSwk-pfqAev/$_99.JPG) Commode for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3NTE=/z/LJsAAOSwJZ5fku3H/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3NTE=/z/LJsAAOSwJZ5fku3H/$_99.JPG) Commode chair for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ZGkAAOSwcMlfptDd/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ZGkAAOSwcMlfptDd/$_99.JPG) Commode for Sale | Mobility, Disability & Medical Equipment | Gumtree
+[ ![](https://i.ebayimg.com/images/g/wNkAAOSwGP9fkPfA/s-l400.webp)](https://i.ebayimg.com/images/g/wNkAAOSwGP9fkPfA/s-l400.webp) commode chair in Sydney Region, NSW | Gumtree Australia Free Local  Classifieds
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YfoAAOSwhnNfXdus/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/YfoAAOSwhnNfXdus/$_99.JPG) Commode chair for Sale in England | Mobility, Disability & Medical  Equipment | Gumtree
+[ ![](https://i.ebayimg.com/images/g/tGAAAOSwD7Nfocit/s-l400.webp)](https://i.ebayimg.com/images/g/tGAAAOSwD7Nfocit/s-l400.webp) commode toilet chair | Miscellaneous Goods | Gumtree Australia Free Local  Classifieds
+[ ![](https://i.ebayimg.com/00/s/NDgwWDY0MA==/z/fgoAAOSwpnpefGlj/$_99.JPG)](https://i.ebayimg.com/00/s/NDgwWDY0MA==/z/fgoAAOSwpnpefGlj/$_99.JPG) Commode chair for Sale | Page 2/2 | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDM4OA==/z/y1IAAOSwP4NfpwO1/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDM4OA==/z/y1IAAOSwP4NfpwO1/$_118.PNG) Commode | Stuff for Sale - Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/yeEAAOSwhvFdWWNQ/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/yeEAAOSwhvFdWWNQ/$_99.JPG) Commode chair for Sale in England | Mobility, Disability & Medical  Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/NDgwWDM2MA==/z/~dMAAOSwsMZfZjGf/$_99.JPG)](https://i.ebayimg.com/00/s/NDgwWDM2MA==/z/~dMAAOSwsMZfZjGf/$_99.JPG) Commode chair for Sale in England | Mobility, Disability & Medical  Equipment | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vMoAAOSwWWFfVTGS/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/vMoAAOSwWWFfVTGS/$_86.JPG) Commode Chair | in Stockport, Manchester | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OaMAAOSwNq9eNvrJ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/OaMAAOSwNq9eNvrJ/$_86.JPG) VINTAGE COMMODE CHAIR | in Rothwell, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5IUAAOSwhBpe221j/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/5IUAAOSwhBpe221j/$_86.JPG) Antique Commode Chair | in Carlton, Nottinghamshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/~AMAAOSwmAZe36Ce/$_58.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/~AMAAOSwmAZe36Ce/$_58.PNG) Commode chair | in Romford, London | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/argAAOSwz-FfE~9n/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDQ1MA==/z/argAAOSwz-FfE~9n/$_86.PNG) Victorian commode chair | in Weymouth, Dorset | Gumtree
+[ ![](https://i.ebayimg.com/images/g/XF4AAOSw2blfOwYv/s-l400.webp)](https://i.ebayimg.com/images/g/XF4AAOSw2blfOwYv/s-l400.webp) COMMODE CHAIR | Miscellaneous Goods | Gumtree Australia Brisbane North East  - Windsor | 1254939630
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/C8QAAOSwmMNcPu0Y/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/C8QAAOSwmMNcPu0Y/$_86.JPG) Commode chair | in Clacton-on-Sea, Essex | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MKwAAOSwyqleSXde/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/MKwAAOSwyqleSXde/$_86.JPG) Commode Chair New REDUCED | in Witney, Oxfordshire | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/o7EAAOSw4tBeWmWQ/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/o7EAAOSw4tBeWmWQ/$_86.JPG) Commode chair | in Dorchester, Dorset | Gumtree
+[ ![](https://i.ebayimg.com/images/g/NLcAAOSw6a5fT~HC/s-l400.webp)](https://i.ebayimg.com/images/g/NLcAAOSw6a5fT~HC/s-l400.webp) SOLD Potty Commode chair Vintage | Antiques | Gumtree Australia Tweed Heads  Area - Tweed Heads | 1256048917
+[ ![](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/KLYAAOSwS1pfmxOu/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFgxMDI0/z/KLYAAOSwS1pfmxOu/$_86.JPG) Lloyd loom like commode chair | in Norwich, Norfolk | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ilkAAOSwMBFfeeXg/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/ilkAAOSwMBFfeeXg/$_86.JPG) Commode chair | in Yate, Bristol | Gumtree
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/SYcAAOSwxVFfoKDs/$_86.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/SYcAAOSwxVFfoKDs/$_86.PNG) Commode / Chair - Quality Wipeable Brown Height Adjustable Commode. It | in  Bradford, West Yorkshire | Gumtree
+[ ![](https://i.ebayimg.com/images/g/IXQAAOSw-vdfonlL/s-l400.webp)](https://i.ebayimg.com/images/g/IXQAAOSw-vdfonlL/s-l400.webp) bedside commode chairs | Gumtree Australia Free Local Classifieds
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/dLUAAOSw7QJfbii6/$_86.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/dLUAAOSw7QJfbii6/$_86.JPG) Antique commode chair | in Wallsend, Tyne and Wear | Gumtree
+[ ![](https://i.ebayimg.com/images/g/KA0AAOSwuLdfpkAo/s-l400.webp)](https://i.ebayimg.com/images/g/KA0AAOSwuLdfpkAo/s-l400.webp) commode chair | Gumtree Australia Free Local Classifieds
+[ ![](https://i.pinimg.com/originals/3b/28/a0/3b28a052b120f64e95f4705703743476.jpg)](https://i.pinimg.com/originals/3b/28/a0/3b28a052b120f64e95f4705703743476.jpg) VINTAGE RETRO PAIR OF WOODEN CHAIRS PAINTED WHITE DECORATIVE SEATS  RESTORATION | United Kingdom | Gumtree | Retro chair, Wooden chair, Chair
+[ ![](https://static.erowz.com/04/pimg/0/14/co/UK_33_FAST_FREE_DELIVERY__Mobile_wheeled_commode_chair_with_QjAwTExFQk5DUw_medium.jpg)](https://static.erowz.com/04/pimg/0/14/co/UK_33_FAST_FREE_DELIVERY__Mobile_wheeled_commode_chair_with_QjAwTExFQk5DUw_medium.jpg) Commode Wheelchair for sale in UK | View 26 bargains
+[ ![](https://www.for-sale.ie/sh-img/gray-powder-coated-drive-bedside-commodes-11148-1-64_1000_commodes.jpg)](https://www.for-sale.ie/sh-img/gray-powder-coated-drive-bedside-commodes-11148-1-64_1000_commodes.jpg) Second hand Commodes in Ireland | 39 used Commodes
+[ ![](https://i.pinimg.com/736x/41/62/5c/41625c850f842e6c0fa7c748a123e18f.jpg)](https://i.pinimg.com/736x/41/62/5c/41625c850f842e6c0fa7c748a123e18f.jpg) Stinkwood Furniture for sale | Centurion | Gumtree Classifieds South Africa  | 215116983 | Dutch furniture, Furniture, Antiques for sale
+[ ![](https://rubrikkukd.blob.core.windows.net/ukimages/36cbc1cb-a1f4-55e3-a02c-b435e3199542-2020-10-28-02-24-40-0-h.jpg)](https://rubrikkukd.blob.core.windows.net/ukimages/36cbc1cb-a1f4-55e3-a02c-b435e3199542-2020-10-28-02-24-40-0-h.jpg) Antique commode chair for sale - October 2020
+[ ![](https://prismmedical.co.uk/wp-content/uploads/2017/05/T70-Full-Side-570x599.jpg)](https://prismmedical.co.uk/wp-content/uploads/2017/05/T70-Full-Side-570x599.jpg) Freeway T70 Shower Chair - Prism Medical UK, moving, handling and bathing  solutions
+[ ![](https://da1urhpfd469z.cloudfront.net/uploads/advertphotos/20/0225/40866843-590-478x640.jpg)](https://da1urhpfd469z.cloudfront.net/uploads/advertphotos/20/0225/40866843-590-478x640.jpg) commodes - Second Hand Disability Aids, Buy and Sell | Preloved
+[ ![](https://i.ebayimg.com/00/s/MTYwMFgxMjAw/z/p0IAAOSwnT5eoQpf/$_35.jpg)](https://i.ebayimg.com/00/s/MTYwMFgxMjAw/z/p0IAAOSwnT5eoQpf/$_35.jpg) mobile shower commode chair | Miscellaneous Goods | Gumtree Australia Free  Local Classifieds
+[ ![](https://da1urhpfd469z.cloudfront.net/uploads/advertphotos/20/0816/42464939-685-640x960.jpg)](https://da1urhpfd469z.cloudfront.net/uploads/advertphotos/20/0816/42464939-685-640x960.jpg) commodes - Second Hand Disability Aids, Buy and Sell | Preloved
